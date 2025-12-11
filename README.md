@@ -1,1 +1,0 @@
-# mewaltsoidontdoxxmyself.github.io
